@@ -2,4 +2,4 @@ DENOd
 
 
 
-lazy tiping
+wasabi
