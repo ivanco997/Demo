@@ -1,0 +1,5 @@
+DENOd
+
+
+
+lazy tiping
